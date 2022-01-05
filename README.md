@@ -4,3 +4,6 @@ I'm building code thinking the world is watching, but as you get older, you real
 The only person you need to compare yourself to is who you were yesterday
 Be better than that person
 But be gentle to yourself if you weren't
+The thing I kept forgetting, or ignoring
+Is truly, if you want to get to it
+You got to go through it.
